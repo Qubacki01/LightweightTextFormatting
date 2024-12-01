@@ -9,13 +9,13 @@ Gary Numan was born as **Gary Anthony James Webb** on 8 March 1958 in London, En
 ## Music Career
 
 * **Tubeaway Army**
-        The band gained traction after the release of **_Replicas_** with "_Are friends electric?_" as their massive hit. This started Numans solo carrer.
+        - The band gained traction after the release of **_Replicas_** with "_Are friends electric?_" as their massive hit. This started Numans solo carrer.
 * **The Pleasure Principle (1979)**
-        This album became his first solo breakthrough with the song "_Cars_" become a hit. It became his signature single solidifying his career.
+        - This album became his first solo breakthrough with the song "_Cars_" become a hit. It became his signature single solidifying his career.
 * **The Downturn**
-        Numan experimented with music on albums released in that time period. They ultimately did not perform very well. He opened his own record label. unfortunetely it did not last because it was dragged down by the poor performance of his albums.
+        - Numan experimented with music on albums released in that time period. They ultimately did not perform very well. He opened his own record label. unfortunetely it did not last because it was dragged down by the poor performance of his albums.
 * **The Resurgence**
-        Numan started to be influenced by industrial which led to once again gaining attention. **_Pure_**(2000) and **_Jagged_**(2006) were a success. The later albums followed those influences and expanded on them.
+        - Numan started to be influenced by industrial which led to once again gaining attention. **_Pure_**(2000) and **_Jagged_**(2006) were a success. The later albums followed those influences and expanded on them.
 
 
 ## Additional Information About the Artist
